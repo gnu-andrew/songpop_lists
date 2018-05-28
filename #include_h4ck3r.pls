@@ -4,6 +4,7 @@ Daft Punk - Recognizer
 Dave Matthews Band - When the World Ends (Oakenfold remix)
 Don Davis - Matrix Revolutions (Main Title)
 Don Davis - Neodammerung
+Dope Smugglaz - The Word (PMT remix)
 FKA Twigs - Two Weeks
 Highwayman - Highwaymen
 Jerry Honigman - By the Way
@@ -24,5 +25,7 @@ Paul Oakenfold - Password
 Philip Glass & Kronos Quartet - 1957 Award Montage
 Sonic Youth - Bull in the Heather
 Sonic Youth - Kool Thing
+Television - Guiding Light
 The Cure - Pictures of You
 The Prodigy - One Love
+The Prodigy - Voodoo People
