@@ -1,3 +1,4 @@
+Animotion - Obsession
 Chicane - Strong in Love
 Daft Punk - End of Line
 Daft Punk - Recognizer
@@ -14,6 +15,7 @@ Leftfield - Inspection (Check One)
 Len - Steal My Sunshine
 Lindsey Buckingham - Time Bomb Town
 Lupe Fiasco & Jill Scott - Daydreamin'
+Mac Quayle - 1.0_1-hellofriend.wav
 Mac Quayle - 1.0_4-m0rphine.aac
 Mac Quayle - 1.1_3-oneor0.wma
 Mac Quayle - 1_3_5-da3m0nsneverstop.caf
@@ -26,6 +28,8 @@ Paul Oakenfold & Christopher Young - Chase
 Paul Oakenfold & Christopher Young - Dark Machine
 Paul Oakenfold - Password
 Philip Glass & Kronos Quartet - 1957 Award Montage
+Rob Dougan - Furious Angels (instrumental)
+Rob Zombie - Dragula (Hot Rod Herman remix)
 Sonic Youth - Bull in the Heather
 Sonic Youth - Kool Thing
 Television - Guiding Light
