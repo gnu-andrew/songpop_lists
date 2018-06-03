@@ -1,8 +1,11 @@
 Animotion - Obsession
+Chicane - Offshore (Disco Citizens remix)
 Chicane - Strong in Love
 Daft Punk - End of Line
 Daft Punk - Recognizer
+Daft Punk - The Grid
 Dave Matthews Band - When the World Ends (Oakenfold remix)
+Deftones - My Own Summer (Shove It)
 Don Davis - Matrix Revolutions (Main Title)
 Don Davis - Neodammerung
 Dope Smugglaz - The Word (PMT remix)
