@@ -2,6 +2,7 @@ Animotion - Obsession
 Chicane - Offshore (Disco Citizens remix)
 Chicane - Strong in Love
 Daft Punk - End of Line
+Daft Punk - Finale
 Daft Punk - Recognizer
 Daft Punk - The Grid
 Dave Matthews Band - When the World Ends (Oakenfold remix)
@@ -15,6 +16,7 @@ Jerry Honigman - By the Way
 Juno Reactor - Navras
 Kool & The Gang - Celebration
 Leftfield - Inspection (Check One)
+Leftfield - Original
 Len - Steal My Sunshine
 Lindsey Buckingham - Time Bomb Town
 Lupe Fiasco & Jill Scott - Daydreamin'
@@ -23,6 +25,7 @@ Mac Quayle - 1.0_4-m0rphine.aac
 Mac Quayle - 1.1_3-oneor0.wma
 Mac Quayle - 1_3_5-da3m0nsneverstop.caf
 Marilyn Manson - Rock Is Dead
+Marvin Berry & The Starlighters - Earth Angel (Will You Be Mine)
 Mogwai - I Know You Are But What Am I
 Orbital - Halcyon and On and On
 Pale 3 - In My Head
@@ -31,6 +34,7 @@ Paul Oakenfold & Christopher Young - Chase
 Paul Oakenfold & Christopher Young - Dark Machine
 Paul Oakenfold - Password
 Philip Glass & Kronos Quartet - 1957 Award Montage
+Rage Against the Machine - Calm Like a Bomb
 Rob Dougan - Furious Angels (instrumental)
 Rob Zombie - Dragula (Hot Rod Herman remix)
 Sonic Youth - Bull in the Heather
