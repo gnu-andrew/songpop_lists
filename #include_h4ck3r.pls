@@ -5,6 +5,7 @@ Daft Punk - End of Line
 Daft Punk - Finale
 Daft Punk - Recognizer
 Daft Punk - The Grid
+Daft Punk - The Son of Flynn
 Dave Matthews Band - When the World Ends (Oakenfold remix)
 Deftones - My Own Summer (Shove It)
 Don Davis - Matrix Revolutions (Main Title)
@@ -26,6 +27,7 @@ Mac Quayle - 1.1_3-oneor0.wma
 Mac Quayle - 1_3_5-da3m0nsneverstop.caf
 Marilyn Manson - Rock Is Dead
 Marvin Berry & The Starlighters - Earth Angel (Will You Be Mine)
+Miyoshi Umeki - Sayonara
 Mogwai - I Know You Are But What Am I
 Orbital - Halcyon and On and On
 Pale 3 - In My Head
@@ -39,6 +41,7 @@ Rob Dougan - Furious Angels (instrumental)
 Rob Zombie - Dragula (Hot Rod Herman remix)
 Sonic Youth - Bull in the Heather
 Sonic Youth - Kool Thing
+Tears for Fears - Everybody Wants to Rule the World
 Television - Guiding Light
 The Cure - Pictures of You
 The Jim Carroll Band - People Who Died
