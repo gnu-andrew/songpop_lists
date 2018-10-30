@@ -15,9 +15,12 @@ Dope Smugglaz - The Word (PMT remix)
 FKA Twigs - Two Weeks
 Fluke - Zion
 Highwayman - Highwaymen
+Iggy Pop - Real Wild Child
 Jerry Honigman - By the Way
 Juno Reactor - Navras
+Juno Reactor - Teahouse
 Kool & The Gang - Celebration
+Kruder & Dorfmeister - Original Bedroom Rockers
 Leftfield - Inspection (Check One)
 Leftfield - Original
 Len - Steal My Sunshine
@@ -29,6 +32,7 @@ Mac Quayle - 1.1_3-oneor0.wma
 Mac Quayle - 1_3_5-da3m0nsneverstop.caf
 Marilyn Manson - Rock Is Dead
 Marvin Berry & The Starlighters - Earth Angel (Will You Be Mine)
+Meat Beat Manifesto - Prime Audio Soup
 Miyoshi Umeki - Sayonara
 Mogwai - I Know You Are But What Am I
 Monster Magnet - Look to Your Orb for the Warning
@@ -52,6 +56,7 @@ Tears for Fears - Everybody Wants to Rule the World
 Television - Guiding Light
 The Cure - Pictures of You
 The Jim Carroll Band - People Who Died
+The Orb - Toxygene
 The Prodigy - Mindfields
 The Prodigy - One Love
 The Prodigy - Voodoo People
