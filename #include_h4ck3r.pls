@@ -14,6 +14,7 @@ Don Davis - Neodammerung
 Dope Smugglaz - The Word (PMT remix)
 FKA Twigs - Two Weeks
 Fluke - Zion
+Giorgio Moroder - The Apartment
 Highwayman - Highwaymen
 Iggy Pop - Real Wild Child
 Jerry Honigman - By the Way
@@ -46,6 +47,7 @@ Paul Oakenfold - Password
 Paul Oakenfold - Swordfish (intro)
 Philip Glass & Kronos Quartet - 1957 Award Montage
 Rage Against the Machine - Calm Like a Bomb
+Rammstein - Du Hast
 Rob Dougan - Furious Angels (instrumental)
 Rob Zombie - Dragula (Hot Rod Herman remix)
 Rob Zombie - Reload
@@ -60,3 +62,4 @@ The Orb - Toxygene
 The Prodigy - Mindfields
 The Prodigy - One Love
 The Prodigy - Voodoo People
+Underworld - Cherry Pie
