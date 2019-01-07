@@ -33,6 +33,7 @@ Mac Quayle - 1.1_3-oneor0.wma
 Mac Quayle - 1_3_5-da3m0nsneverstop.caf
 Marilyn Manson - Rock Is Dead
 Marvin Berry & The Starlighters - Earth Angel (Will You Be Mine)
+Marvin Berry & The Starlighters - Night Train
 Meat Beat Manifesto - Prime Audio Soup
 Miyoshi Umeki - Sayonara
 Mogwai - I Know You Are But What Am I
@@ -63,3 +64,5 @@ The Prodigy - Mindfields
 The Prodigy - One Love
 The Prodigy - Voodoo People
 Underworld - Cherry Pie
+Underworld - Cowgirl
+W.A.Mozart & Sumi Jo - The Magic Flute, K. 620, Act II: The Queen of the Night's Aria
